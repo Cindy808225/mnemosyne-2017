@@ -1,0 +1,18 @@
+# Cindy (Name of the Pen)
+
+![](./_assets/janze-profile.jpg)
+
+I am a full-time student, a part-timer, a hobbyist, a gamer, an avid-reader and an otaku. 
+___
+
+## Published
+- https://medium.com/@newsletter_54417/the-jr-sr-85aa58b88c2a
+
+
+## personal tidbit 
+
+
++Potato ..... *Mic Drop*
+
+## Conatact Info
+- https://sites.google.com/templeton.vsb.bc.ca/portfolio-graphics-cindy/finished
